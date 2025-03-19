@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jessica2ccc.An undergraduate student from xxU.
 - 👀 I’m interested in everything!
-- 🌱 I’m currently learning how to use matlab.Hope I can finish my graduate design successfully and acquire a postgraduate admission!
+- 🌱 I’m currently learning how to use matlab.Hope I can finish my undergraduate design successfully and acquire a postgraduate admission!
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me :jingchenliu_03@163.com
 - 😄 Pronouns: 
